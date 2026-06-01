@@ -153,4 +153,4 @@ If you have any questions about this Privacy Policy, or the practices of the Ser
 TheNote.app
 privacy@thenote.app
 
-Last updated: November 21, 2025
+Last updated: June 01, 2026
